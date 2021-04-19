@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FahmiChaar
+- 👀 I’m interested in Web, Mobile development
+- 🌱 I’m currently learning New things...
+- 📫 How to reach me fahmichaar@gmail.com
